@@ -3,3 +3,15 @@
 </p>
 
 ![alt text](https://i.imgur.com/E589vT5.png) 
+
+⠀
+⠀
+<p align="center">
+  ✄  ⠀⠀I ⠀⠀WILL ⠀⠀MAKE ⠀⠀YOU ⠀⠀DREAM ⠀.
+</p>
+⠀
+⠀
+⠀⠀
+<p align="center">
+  ——
+</p>
