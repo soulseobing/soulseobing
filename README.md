@@ -1,14 +1,16 @@
 
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=soulseobing&color=lightgrey&label=VILLAINS." />
 </p>
 ⠀
 ⠀
-
-![alt text](https://i.imgur.com/oyZMaTy.png) 
+<p align="center">
+ <img src="https://i.imgur.com/RAU9yrE.png"/>
+</p>
 
 ⠀<p align="center">
-  <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif" />
+  —×—
 </p>
 
 ⠀
